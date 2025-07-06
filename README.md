@@ -7,3 +7,4 @@ i try to be as chill as possible when possible
 
 dni: i dont really have a dni list except for a few fandoms and people (dw, proshippers, darkshippers etc.) I will block freely so beware.
 int: again not really got one int freely unless my name says otherwise.
+![image](https://github.com/user-attachments/assets/60ed070d-3c89-44ea-8478-bc016bf17f14)
