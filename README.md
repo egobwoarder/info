@@ -1,11 +1,4 @@
-![alt text](https://ella.janitorai.com/bot-avatars/RvmHKdXkIwSDt91aaLOq0.webp?width=120)
-interact with caution, my humour can sometimes be unsettling to others lmao
-
-hello im vex lmao , im kinda socially inept but i really do love to talk. I dont really get
-social cues at times so if im being annoying tell me to lock in or something lmao
-i try to be as chill as possible when possible
-
-dni: i dont really have a dni list except for a few fandoms and people (dw, proshippers, darkshippers etc.) I will block freely so beware.
-int: again not really got one int freely unless my name says otherwise.
-
-<img src="https://github.com/user-attachments/assets/60ed070d-3c89-44ea-8478-bc016bf17f14" width="100" height="100"> <img src="https://github.com/user-attachments/assets/60ed070d-3c89-44ea-8478-bc016bf17f14" width="100" height="100"> <img src="https://github.com/user-attachments/assets/60ed070d-3c89-44ea-8478-bc016bf17f14" width="100" height="100"> <img src="https://github.com/user-attachments/assets/60ed070d-3c89-44ea-8478-bc016bf17f14" width="100" height="100"> <img src="https://github.com/user-attachments/assets/60ed070d-3c89-44ea-8478-bc016bf17f14" width="100" height="100"> <img src="https://github.com/user-attachments/assets/60ed070d-3c89-44ea-8478-bc016bf17f14" width="100" height="100"> <img src="https://github.com/user-attachments/assets/60ed070d-3c89-44ea-8478-bc016bf17f14" width="100" height="100"> 
+<img width="50" height="50" alt="image" src="https://media.tenor.com/oovntQmQ1O4AAAAj/skatebean-skateboard-phighting.gif" /> 
+𝚟𝚎𝚡
+𝚜𝚔𝚊𝚝𝚎/𝚜𝚞𝚙𝚙𝚘𝚛𝚝 𝚖𝚊𝚒𝚗𝚜
+𝚒 𝚕𝚒𝚔𝚎 𝚝𝚘 𝚙𝚕𝚊𝚢 𝚌𝚘𝚒𝚕 𝚝𝚑𝚎 𝚖𝚘𝚜𝚝 𝚋𝚞𝚝 𝚒 𝚑𝚊𝚟𝚎 𝚊 𝚟𝚎𝚛𝚢 𝚜𝚝𝚛𝚘𝚗𝚐 𝚐𝚛𝚒𝚙 𝚘𝚗 𝚊𝚕𝚕 𝚝𝚑𝚎 𝚜𝚞𝚙𝚙𝚘𝚛𝚝𝚜 𝚕𝚘𝚕
